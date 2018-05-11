@@ -1,0 +1,2 @@
+# tekad
+Pecinta onepiece
